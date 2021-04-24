@@ -1,2 +1,2 @@
-# Pagina-PES-MORELOS-JORGE-BRUNO-FLORES
-pagina personal de candidatura
+# Pagina-PES-MORELOS
+pagina personal
